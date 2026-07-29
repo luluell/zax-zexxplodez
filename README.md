@@ -16,7 +16,7 @@ no specific dni, I block freely.
 
 <img width="20" height="20" alt="30" src="https://github.com/user-attachments/assets/3ac552b1-7a79-4d2c-9768-f34cd69685d1" /> >> I love my friends..
 
-<a href="https://github.com/Atheistic-Satanist">
-  amazing Sano!(I love you sm) </a>
-  <img width="714" height="824" alt="3011" src="https://github.com/user-attachments/assets/4ad864ea-b739-4f55-9d79-78fef678d966" />
-⠀
+<a href="https://github.com/rrownnhatesveggies">
+  Stupid baka veggie <a/>
+  <a href="https://github.com/welcomehugz">
+  Host/kangel <a/>
